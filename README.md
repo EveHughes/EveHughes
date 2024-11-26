@@ -2,7 +2,7 @@
 - 👀 I’m interested in reels
 - 🌱 I’m currently learning reels
 - 💞️ I’m looking to collaborate on reels
-- 📫 How to reach me instagram reels
+- 📫 How to reach me: instagram reels
 - 😄 Pronouns: instagram/reels
 - ⚡ Fun fact: i love instagram reels
 
